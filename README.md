@@ -1,4 +1,4 @@
-## ![GrumpBoat](https://youtube.com/@GrumpBoat)
+## [GrumpBoat](https://youtube.com/@GrumpBoat)
 A goofy ahh mf coding for no reason 🤓
 
 As a nerd, I like Mathematic and Chemistry.
