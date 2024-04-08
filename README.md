@@ -1,8 +1,7 @@
 ## [GrumpBoat](https://youtube.com/@GrumpBoat)
 A goofy ahh mf coding for no reason 🤓
 
-As a nerd, I like **Mathematic** and **Chemistry**.
-I always do math for literally no reason.
+As a nerd, I like **Mathematic** and **Chemistry**. Of course I am also interested in **computer programming**.
 
 **Did you know that...?**
 bitches = undefined
